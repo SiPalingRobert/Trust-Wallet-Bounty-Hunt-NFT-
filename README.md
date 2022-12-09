@@ -24,4 +24,4 @@ Trust Wallet Bounty Hunt NFT
 
 12. https://galxe.com/apolloxfinance/campaign/GCzRDUwufk
 
-13. https://galxe.com/Venus/campaign/GCnJfUwZh8
+13. https://galxe.com/Venus/campaign/GCnJfUwZh8 ✅
