@@ -10,11 +10,11 @@ Trust Wallet Bounty Hunt NFT
 
 5. https://galxe.com/apeswap/campaign/GCJGfUwXuz
 
-6. https://galxe.com/SingularityDAO/campaign/GCJufUwNm6
+6. https://galxe.com/SingularityDAO/campaign/GCJufUwNm6 ✅
 
-7. https://galxe.com/okseio/campaign/GCk3DUw55E
+7. https://galxe.com/okseio/campaign/GCk3DUw55E ✅
 
-8. https://galxe.com/spaceid/campaign/GCkxDUw5Cp
+8. https://galxe.com/spaceid/campaign/GCkxDUw5Cp ✅
 
 9. https://galxe.com/dsla/campaign/GCh8DUwBJf ✅
 
