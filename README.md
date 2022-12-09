@@ -16,9 +16,9 @@ Trust Wallet Bounty Hunt NFT
 
 8. https://galxe.com/spaceid/campaign/GCkxDUw5Cp
 
-9. https://galxe.com/dsla/campaign/GCh8DUwBJf
+9. https://galxe.com/dsla/campaign/GCh8DUwBJf ✅
 
-10. https://galxe.com/mimo/campaign/GCdZDUwiZ7
+10. https://galxe.com/mimo/campaign/GCdZDUwiZ7 ✅
 
 11. https://galxe.com/TraderJoe/campaign/GCGpBUwvYe ✅
 
