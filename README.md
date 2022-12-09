@@ -1,8 +1,8 @@
 Trust Wallet Bounty Hunt NFT
 
-1. https://galxe.com/daomaker/campaign/GCYh6UwBxK
+1. https://galxe.com/daomaker/campaign/GCYh6UwBxK 
 
-2. https://galxe.com/helio/campaign/GCGYfUweWo
+2. https://galxe.com/helio/campaign/GCGYfUweWo 
 
 3. https://galxe.com/arivawonderland/campaign/GCGifUwWch
 
@@ -20,8 +20,8 @@ Trust Wallet Bounty Hunt NFT
 
 10. https://galxe.com/mimo/campaign/GCdZDUwiZ7
 
-11. https://galxe.com/TraderJoe/campaign/GCGpBUwvYe
+11. https://galxe.com/TraderJoe/campaign/GCGpBUwvYe ✅
 
-12. https://galxe.com/apolloxfinance/campaign/GCzRDUwufk
+12. https://galxe.com/apolloxfinance/campaign/GCzRDUwufk ✅
 
 13. https://galxe.com/Venus/campaign/GCnJfUwZh8 ✅
